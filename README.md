@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data analytics
 - 🌱 I’m currently learning Data analytics, python, power Bi
 - 💞️ I’m looking to collaborate on data analytical projects
-- Reach me [HERE](www.linkedin.com/in/chika-blessing-6a1109310)
+- Reach me [HERE](https://www.linkedin.com/in/chika-blessing-6a1109310/)
 - 😄 Pronouns: She
 - ⚡ Fun fact: 
 
